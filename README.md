@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ommavi
+- 👀 I’m interested in Proof-of-Stake validator
+- 📫 How to reach me at github____
+- 😄 Pronouns: he/his
+- ⚡ Fun fact: i love tea 
